@@ -1,1 +1,0 @@
-# Speech-Assignment-1
